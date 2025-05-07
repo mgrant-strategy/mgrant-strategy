@@ -1,4 +1,4 @@
-# Mandela M. Grant – AI-Augmented Strategist | CMA Candidate | Military Leader Turned Financial Systems Architect
+# Mandela M. Grant – Strategist | CMA Candidate | Military Leader Turned Financial Systems Architect
 
 Welcome to my portfolio. I'm Mandela — a strategic professional blending military precision, financial expertise, and modern AI workflows to build intelligent systems for decision-making, economic insight, and operational excellence.
 
